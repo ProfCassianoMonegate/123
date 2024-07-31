@@ -3,6 +3,6 @@
 _Este repositório será exemplo para as aulas_
 
 
-![Luffy rindo](https://media.tenor.com/aSvNzSQUVwAAAAAM/luffy-gear-5.gif)
+![gatoGM](https://media1.tenor.com/m/Cih6xCgOHxMAAAAC/dancing-cat-dance.gif)
 
 - Estou estudando no [CESF](https://cesfcl.com.br/)
