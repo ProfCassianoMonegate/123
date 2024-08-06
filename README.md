@@ -3,7 +3,6 @@
 _Este repositório será exemplo para as aulas_
 
 
-![bomdiadevó](https://media1.tenor.com/m/MEyFxlV7CWgAAAAd/bom-dia-good-morning.gif)
+![aaahagoraeuentendi](https://media1.tenor.com/m/k5K-B8QKOakAAAAd/aaahhh.gif)
 
-- Estou estudando no [CESF](https://cesfcl.com.br/)
-gfd vtc ghfcfgfgyftfty
+- Estou estudando na [NASA](https://www.nasa.gov/)
